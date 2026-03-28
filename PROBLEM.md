@@ -1,5 +1,7 @@
 # TOP 10 PROBLEMS
 
+https://razorpay.com/m/fix-my-itch/#top-10-problems
+
 1. **Automotive** - Why can't first time used car buyers verify car histories, conditions and future maintenance costs?
 
 2. **Housing** - Why can't renters access verified mold, pests or hazards before signing leases?
